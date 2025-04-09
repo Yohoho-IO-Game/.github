@@ -2,6 +2,8 @@
 
 **Yohoho Unblocked** is an **epic pirate battle game** where you fight for treasure, survive enemy attacks, and become the last pirate standing! Whether you're at school or on a break, this **unblocked.io** game brings non-stop fun, fast-paced action, and a competitive multiplayer experience – no downloads needed.
 
+## <a href="https://izigames.net/">👉 Play Yohoho IO Unblocked 👈</a>
+
 ### ⚔️ What is Yohoho Unblocked?
 
 Yohoho.io is a **multiplayer pirate battle royale** game where you control a pirate, collect coins, and defeat enemies using your sword. The more you collect and eliminate rivals, the bigger and stronger you get! Now available as **Yohoho Unblocked**, the game can be played **directly in your browser**, even on restricted school networks.
